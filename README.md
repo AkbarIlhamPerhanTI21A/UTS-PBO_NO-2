@@ -1,1 +1,1 @@
-Jawaban essay no 2 akan segera di upload
+Jawaban PG ada di file PDF dan jawaban ESSAY no 2 ada di package UTS
